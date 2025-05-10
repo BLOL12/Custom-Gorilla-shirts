@@ -12,17 +12,3 @@ This is where I will publish my custom Gorilla shirts
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-10%2017-46-34-31.png?raw=true)
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-10%2017-41-58-58.png?raw=true)
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-10%2017-42-37-99.png?raw=true)
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
-![image alt](
