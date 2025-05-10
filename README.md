@@ -8,7 +8,7 @@ This is where I will publish my custom Gorilla shirts
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-02%2011-11-53-08.png?raw=true)
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-02%2011-22-06-69.png?raw=true)
 ![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-02%2011-22-48-30.png?raw=true)
-![image alt](
+![image alt](https://github.com/BLOL12/Custom-Gorilla-shirts/blob/main/2025-05-10%2017-41-09-35.png?raw=true)
 ![image alt](
 ![image alt](
 ![image alt](
